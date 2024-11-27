@@ -1,5 +1,5 @@
 ## 👋 Bienvenido a LevelUp Tijuana
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=34&pause=1000&color=2397F7&width=435&lines=REDES+SOCIALES+;MARKETING+DIGITAL+;APARECER+EN+GOOGLE+;INSTAGRAM+;FACEBOOK+;WHATSAPP;TWITTER;TIKTOK;Y+M%C3%81S.)](https://git.io/typing-svg)
 - 🚀 Acelera tu negocio con nuestras soluciones de Marketing Digital efectivas y personalizadas.
 ### 📈 Nuestro enfoque
 - En LevelUp Tijuana, nos especializamos en ayudarte a alcanzar tus objetivos y aumentar tu presencia en línea. Nuestro equipo de expertos en marketing digital está comprometido con brindarte soluciones de alta calidad.
