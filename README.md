@@ -12,7 +12,7 @@ Analiza y optimiza tus campañas para maximizar tus resultados 📊
 🤝 ¿Estás listo para llevar tu negocio al siguiente nivel?
 ¡Contáctanos hoy mismo para obtener más información sobre nuestros servicios de marketing digital en Tijuana! 📲
 ## 📲 Contacto
-- Correo electrónico: [digitalqrplayas@gmail.com](mailto: digitalqrplayas@gmail.com)
+- Correo electrónico: [digitalqrplayas@gmail.com](mailto:digitalqrplayas@gmail.com)
 
 - Teléfono: [+52 663 322 5758](tel:+526633225758)
 - Dirección: [leveluptijuana.com en Playas de Tijuana](https://leveluptijuana.com/)
