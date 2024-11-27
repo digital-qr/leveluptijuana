@@ -1,4 +1,4 @@
-# Level up Tijuana - Redes Sociales
+# Level up Tijuana 
 
 - En LevelUp Tijuana, nos especializamos en ofrecerte soluciones de Marketing Digital efectivas y personalizadas para tu negocio. Nuestro equipo de expertos en marketing digital está comprometido con ayudarte a alcanzar tus objetivos y aumentar tu presencia en línea.
 
