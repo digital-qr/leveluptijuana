@@ -1,6 +1,12 @@
 ## 👋 Bienvenido a LevelUp Tijuana
 ![LevelUpTijuana.com Marketing](leveluptijuana.png)
 __________________
+> [!TIP]
+> Visita Nuestra página
+> web oficial.
+> [www.leveluptijuana.com](https://leveluptijuana.com)
+>
+![divisor levelup](https://raw.githubusercontent.com/Retired64/Retired64/main/gif/linea.gif)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=34&pause=1000&color=2397F7&width=435&lines=REDES+SOCIALES+;MARKETING+DIGITAL+;APARECER+EN+GOOGLE+;INSTAGRAM+;FACEBOOK+;WHATSAPP;TWITTER;TIKTOK;Y+M%C3%81S.)](https://git.io/typing-svg)
 - 🚀 Acelera tu negocio con nuestras soluciones de Marketing Digital efectivas y personalizadas.
