@@ -24,7 +24,9 @@ __________________
 
 ![divisor levelup](https://raw.githubusercontent.com/Retired64/Retired64/main/gif/linea.gif)
 
-[![Short Promoción Level Up Tijuana](https://img.youtube.com/vi/e0THuyKAjQA/hqdefault.jpg)](https://youtube.com/shorts/e0THuyKAjQA)
+[![Short Promoción Level Up Tijuana](shortvideo.jpg)](https://youtube.com/shorts/e0THuyKAjQA)
+
+![divisor levelup](https://raw.githubusercontent.com/Retired64/Retired64/main/gif/linea.gif)
 
 - 🚀 Acelera tu negocio con nuestras soluciones de Marketing Digital efectivas y personalizadas.
 ### 📈 Nuestro enfoque
