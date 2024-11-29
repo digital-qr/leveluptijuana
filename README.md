@@ -12,7 +12,7 @@ __________________
 
 <h2>Sigue a Level Up Tijuana 🚀</h2>
 
-> Si deseas estar al tanto de las últimas Novedades, sigueme en mis redes sociales 👇👇👇👇👇👇
+> Si deseas estar al tanto de las últimas Novedades, sigueme en mis redes sociales 👇👇👇👇
 
 <p align="left">
   <a href="https://youtube.com/@leveluptijuana"><img alt="YouTube Level Up Tijuana" src="https://img.shields.io/badge/YouTube-%23c4302b"></a>
