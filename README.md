@@ -24,6 +24,8 @@ __________________
 
 ![divisor levelup](https://raw.githubusercontent.com/Retired64/Retired64/main/gif/linea.gif)
 
+[![Short Promoción Level Up Tijuana](https://img.youtube.com/vi/e0THuyKAjQA/hqdefault.jpg)](https://youtube.com/shorts/e0THuyKAjQA)
+
 - 🚀 Acelera tu negocio con nuestras soluciones de Marketing Digital efectivas y personalizadas.
 ### 📈 Nuestro enfoque
 - En LevelUp Tijuana, nos especializamos en ayudarte a alcanzar tus objetivos y aumentar tu presencia en línea. Nuestro equipo de expertos en marketing digital está comprometido con brindarte soluciones de alta calidad.
